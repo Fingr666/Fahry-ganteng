@@ -1,2 +1,0 @@
-# Fahry-ganteng
-Ikaaa:*
